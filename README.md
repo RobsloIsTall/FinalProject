@@ -2,7 +2,7 @@
 ## A real tall boy
 
 #### Socal Media
-[Twitter](www.Twitter.com/robby_lothian) &nbsp; &nbsp; [Instagram](www.Instagram.com/r___________l)
+[Twitter](https://www.Twitter.com/robby_lothian) &nbsp; &nbsp; [Instagram](https://www.Instagram.com/r___________l)
 
 #### Other Pages
 [Home](README.md) &nbsp; &nbsp;
